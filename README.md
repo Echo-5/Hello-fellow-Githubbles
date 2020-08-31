@@ -1,2 +1,2 @@
 # Hello-fellow-Githubbles
-I on a journey to explore the deeper metric world of art
+I'm on a journey to explore the deeper metric world of art
